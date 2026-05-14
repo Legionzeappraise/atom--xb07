@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Atom for PC | Atom for Windows plugin with new Atom for PC | Atom for Windows Plugin | markdown-preview + Git-integration. Featuring markdown-preview and
 
 
 
